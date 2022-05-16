@@ -1,0 +1,1 @@
+https://www.notion.so/JS-Review-Basics-df62ac0f669a48129e3f9c6fd0214613
